@@ -1,0 +1,2 @@
+# Batan
+Batan geminin malları
